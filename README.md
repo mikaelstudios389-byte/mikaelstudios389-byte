@@ -1,16 +1,64 @@
-## Hi there 👋
+# MGP
 
-<!--
-**mikaelstudios389-byte/mikaelstudios389-byte** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Mikael Gans Purple
 
-Here are some ideas to get you started:
+**Two Pillars. One Vision.**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Creative Technology · AI · Web3 · Digital Experiences
+
+---
+
+## THE VISION
+
+MGP is a creative technology universe exploring the intersection of artificial intelligence, Web3, digital experiences and visual storytelling.
+
+Built around experimentation, technology and creative direction.
+
+---
+
+## MGP
+
+Mikael Gans Purple is the creative technology identity behind a growing ecosystem of digital experiments, concepts and experiences.
+
+**Focus**
+
+- Artificial Intelligence
+- Creative Technology
+- Web3
+- Digital Experiences
+- Visual Storytelling
+- Digital Innovation
+
+---
+
+## BARÚK
+
+**Barúk** is an evolving digital ecosystem exploring the convergence of technology, creativity, Web3 and emerging digital culture.
+
+---
+
+## CURRENTLY BUILDING
+
+Researching and developing new concepts across:
+
+**AI × Web3 × Visual Technology × Digital Experiences**
+
+---
+
+## MGP × BARÚK
+
+Two pillars.
+
+One vision.
+
+A digital ecosystem built to evolve.
+
+---
+
+### CONNECT
+
+[X](https://x.com/maykol3030)
+
+[Instagram](https://instagram.com/mkmasacre)
+
+[TikTok](https://www.tiktok.com/@mgp7881)
