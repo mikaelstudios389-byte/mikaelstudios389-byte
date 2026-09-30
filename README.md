@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="./IMG_6473.jpeg" alt="MGP - Mikael Gans Purple">
+</p> 
 # MGP
 
 ### Mikael Gans Purple
